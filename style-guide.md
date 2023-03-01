@@ -33,5 +33,3 @@ The designs were created to the following widths:
 
 - Family: [Fraunces](https://fonts.google.com/specimen/Fraunces)
 - Weights: 700
-
-P E R F U M E Gabrielle Essence Eau De Parfum Gabrielle Essence Eau De Parfum</h1> A floral, solar and voluptuous interpretation composed by Olivier Polge, Perfumer-Creator for the House of CHANEL. $149.99 $169.99 Add to cart icon
